@@ -23,7 +23,7 @@ I'm using this profile to document my progress, practise consistently, and share
 
 ### 🤝 Let's Connect
 
-- GitHub: [@YOUR-USERNAME](https://github.com/YOUR-USERNAME)
+- GitHub: [@nidhihere22](https://github.com/YOUR-USERNAME)
 
 Thanks for visiting my profile! ⭐
 
